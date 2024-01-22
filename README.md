@@ -1,2 +1,2 @@
 # JAI SHRI RAM
-Made by Aritra Ghohs
+Made by Aritra Ghosh
